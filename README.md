@@ -3,3 +3,4 @@ A hiker who likes to go off the beaten path, Stew claims he came across a lone h
 He left home early for work.
 The story did not just end there, a few weeks later Stew the hiker visted the grimy pub again and you won't believe what he seen.
 He seen his childhood best friend!
+He was so shocked to see him.
